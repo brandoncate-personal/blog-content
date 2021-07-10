@@ -1,3 +1,7 @@
+---
+title: I confess for I have sinned
+---
+
 # I confess for I have sinned.
 
 I have a problem. A very serious problem. Something that has plagued me for most of my life. 
